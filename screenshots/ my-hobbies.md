@@ -1,3 +1,0 @@
-travelling
-reading
-crochet
